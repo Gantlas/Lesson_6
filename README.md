@@ -1,2 +1,2 @@
-# Lesson_6
-https://gantlas.github.io/Lesson_6/
+# Lesson_6-home35
+https://gantlas.github.io/Lesson_6-home35/
